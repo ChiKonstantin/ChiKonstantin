@@ -1,4 +1,4 @@
-### On my mind:
+### On my mind 🧠 :
 
 - Less is more
 - Prosody
