@@ -9,3 +9,4 @@
 - Risk vs return
 - Heightening
 - Self-awareness
+- Waves
